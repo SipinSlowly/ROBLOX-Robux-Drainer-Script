@@ -10,4 +10,4 @@ For proof this actually works, i will be giving you the code to test. DM Me on d
 This method comes with a generator, so your friends can use it too! One-time payment.
 
 
-a;#0002 to purchase
+a;#0002 to purchase & for more info.
